@@ -1,5 +1,5 @@
 
-# Atlanta Managed IT Services for Secure Scalable Business Technology
+# J3K Technologies Providing Industry Focused Managed IT Services in Atlanta
 
 Businesses today operate in a technology-driven environment where secure networks, cloud systems, and uninterrupted connectivity play a critical role in daily operations. A single cybersecurity incident, server failure, or network outage can impact productivity, customer trust, and revenue generation. Companies across industries now require dependable IT infrastructure that supports growth while protecting sensitive business information from increasing digital threats.
 
